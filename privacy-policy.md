@@ -77,7 +77,7 @@ We may update this Privacy Policy from time to time. Changes will be reflected o
 
 If you have any questions regarding this Privacy Policy, contact us at:
 
-Email: imshahzebansari1996@gmail.com
+Email: imshahzebansari@gmail.com
 
 ---
 
